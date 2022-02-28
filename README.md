@@ -1,2 +1,8 @@
 # ADAD
 ADAD
+JGKH
+KHK
+HK
+HKH
+KH
+KHK
